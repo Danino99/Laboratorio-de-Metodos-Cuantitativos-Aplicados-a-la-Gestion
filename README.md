@@ -1,0 +1,1 @@
+# Laboratorio-de-Metodos-Cuantitativos-Aplicados-a-la-Gestion
